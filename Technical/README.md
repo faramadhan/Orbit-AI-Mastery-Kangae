@@ -1,1 +1,1 @@
-Domain Techical - Orbit Future Academy - AI Mastery
+Domain Technical - Orbit Future Academy - AI Mastery
